@@ -1,3 +1,3 @@
 # D3-Challenge
 United States Demographics
-![](US_Graphic.mov)
+![](https://gfycat.com/massiveglisteninghyrax)
